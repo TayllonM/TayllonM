@@ -9,6 +9,21 @@
 🚀 perdido entre estrelas, algoritmos e histórias épicas,  
 📜 dando vida ao impossível com criatividade e paixão.
 
+
+║          🎨 Coisas Favoritas        ║
+
+
+🎨 Cores: **Azul Escuro** 💙 e **Azul Claro** 🩵  
+🌙 Estética: Minimalista, cósmica e sonhadora ✨
+
+
+║             🌟 Fun Facts            ║
+
+🐾 Tenho 2 gatos  
+🌌 Adoro criar mundos inteiros nos meus pensamentos  
+😴 Adoro cochilar  
+🚿 Adoooro um banho quente hehe  
+
 📫 **Contato:** Offtayllon@gmai.com
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀★彡
