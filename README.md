@@ -1,16 +1,14 @@
-## Hi there 👋
+╔══════════════════════════════════════╗
+║            ✦ Sobre Mim ✦            ║
+╚══════════════════════════════════════╝
 
-<!--
-**TayllonM/TayllonM** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+💻 **Aspirante a Desenvolvedor** | 🎲 **Criador de RPG Personalizado**  
+✨ Transformo ideias em código e imaginação em mundos únicos.
 
-Here are some ideas to get you started:
+🌌 Sonhador lunático por natureza —  
+🚀 perdido entre estrelas, algoritmos e histórias épicas,  
+📜 dando vida ao impossível com criatividade e paixão.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+⠀⠀⠀⠀⠀⠀⠀⠀⠀★彡
+⠀⠀⠀⠀⠀⠀⠀☾⋆⁺₊✧
+⠀⠀⠀⠀⠀🚀✨🌠
